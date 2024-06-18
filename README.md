@@ -6,7 +6,7 @@
 
 ## <div align=center>   **정일상** </div>
  
-## <div align=center> Seoul / Ilsan </div> <div align=center>  2000. 12 . 21 </div> <div align=center> INFJ </div>
+## <div align=center> Seoul / Ilsan </div> <div align=center>  2000. 12 . 21 </div> <div align=center> INTJ </div>
 
  
 ### <div align=center> &#128575; Learning... </div>
